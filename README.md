@@ -8,4 +8,4 @@ My favorites include .py, .ts, .tsx, and .rs — though with AI it kinda feels l
 
 Interested in working on cool things with cool people.
 
-Contact: your_email_here
+Contact: ezsinehan@gmail.com
