@@ -1,4 +1,4 @@
-## hi, i'm sinehan 👋
+## Hi there 👋
 
 <br>
 
