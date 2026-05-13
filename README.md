@@ -6,6 +6,6 @@ I want to work on things that help people and make money.
 
 favorite tools right now: `.rs`, linux, llms, Claude Code `<3`
 
-find my work here: [sinehan.dev](https://sinehan.dev)
+find my work here: 🌈 [sinehan.dev](https://sinehan.dev)
 
 reach me: `ezsinehan@gmail.com`
