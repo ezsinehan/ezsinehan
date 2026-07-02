@@ -6,7 +6,7 @@ I like working close to the machine, but I care more about what the thing does t
 
 <br>
 
-I want to work on things that help people and make money.
+I want to work on things that help people.
 
 <br>
 
